@@ -1,0 +1,1 @@
+# Value-single-stage-vacuum-pump-for-a-busy-workshop-a-plain-look-at-the-VSV-range
